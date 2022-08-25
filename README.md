@@ -1,0 +1,2 @@
+# Tecno
+For the project
